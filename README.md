@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil - John Baliardo
+## Bem-vindo(a) ao meu perfil - John Baliardo 🖖🏻
 
  <div>
    <a href="https://github.com/srbaliardo">
